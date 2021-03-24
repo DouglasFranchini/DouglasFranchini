@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DouglasFranchini
+- 👀 I’m interested in anime, music and video games, specially Diablo 2!
+- 🌱 I’m currently learning programming
+- 💞️ I’m looking to collaborate on anything I can help. I believe since I have a major in economics / industry experience I can help with ideads about what to program, not programming exactly
+- 📫 How to reach me: send me a PM here!
